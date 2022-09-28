@@ -2,4 +2,6 @@
 aku ingin lalalal
 lilili
 lululu
-lelelele
+lelelele 
+yeyyeye
+yuyuyu
