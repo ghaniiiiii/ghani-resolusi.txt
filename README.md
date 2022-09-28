@@ -1,0 +1,1 @@
+# ghani-resolusi.txt
